@@ -1,1 +1,0 @@
-# Tambuah-Salero
